@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ndtkhd
-- 👀 I’m interested in Typeface, 3Dmodeling, midiFighter.
-- 🌱 I’m currently learning Korean.
+- 👀 I’m interested in Typeface, 3Dmodeling, Cooking.
+- 🌱 I’m currently learning Korean, MIDI.
